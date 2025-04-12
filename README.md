@@ -1,2 +1,0 @@
-# Huge-ranger
-Gaming channel 
